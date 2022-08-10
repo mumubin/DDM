@@ -29,9 +29,6 @@ but ~~it~~(the) keep calm ~~help themselves~~(were hold in reserve) ;~~and it us
 
 It ~~sounds the~~(was found in a)  second hands ~~in the corner vi.\~~(bookshop called Barter Books in the northeast corner of England)
 
-
-
-
 ~~But build begin~~(Barter Books was begun) in the 1991,  by a couple of ~~executed by Mars and Mary~~(Stewart and Mary Manley).
 The building ~~is a~~(used to be an) old ~~victory~~(Victorian) railway station.
 
@@ -44,7 +41,9 @@ it was (in) 2000 (that stewart)found ~~books~~(poster) in ~~the dust option~~ a 
 
 ~~mary like to show much, a year later,they began to start to copy.~~ 
 
-(Mary liked it so much, she had it framed and put it up near the shop till. And it proved so popular with the customers that a year later they began to sell copies.))
+(Mary liked it so much, she had it framed and put it up near the shop till. 
+
+And it proved so popular with the customers that a year later they began to sell copies.))
 
 since that time,(the poster has been) reproduced and ~~parity~~(parodied and trivialized and has ) become ~~acharming in~~(a truly iconic image of) 21st century.
 
@@ -52,9 +51,11 @@ It is hard to say that exactly ~~what~~(why) such a ~~free~~(phrase from a bygon
 
 (Its design’s considered simple and timeless and now commonly recognizable.)
 
-~~It designs to a simply time and recommadtion as for. whoever had pass~~ (However, it is perhaps the words on the poster that people find most enchanting. Like a voice out of history,)
+~~It designs to a simply time and recommadtion as for. whoever had pass~~ 
+(However, it is perhaps the words on the poster that people find most enchanting. Like a voice out of history,)
 
-~~I can voiced  It would be a very hot and conference go times and someone fish~~(it offers a very simple, warm-hearted message to inspire confidence in others during difficult times. And it’s something that should never fade from fashion—)
+~~I can voiced  It would be a very hot and conference go times and someone fish~~
+(it offers a very simple, warm-hearted message to inspire confidence in others during difficult times. And it’s something that should never fade from fashion—)
 
 To keep calm and carry on.
 
