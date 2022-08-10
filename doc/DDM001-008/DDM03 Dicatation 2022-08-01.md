@@ -5,7 +5,7 @@
 In the spring of 1939, ~~boost~~(during the buildup to) a war with Germany,
 
 
-~~The British government committed  a serious propoganda posters~~ (These posters were intended to offer the public reassurance in the dark days that lay ahead)
+The British government ~~committed~~(commissioned)  a ~~serious~~(serial) propganda posters (These posters were intended to offer the public reassurance in the dark days that lay ahead)
 
 ~~recommand the public reassure the dark days,they had~~
 
@@ -32,23 +32,25 @@ It ~~sounds the~~(was found in a)  second hands ~~in the corner vi.\~~(bookshop 
 
 
 
-~~But build begin~~(Barter Books was begun) in the 1991,  by a couple of ~~executed by Mars and Mary~~(Stewart and Mary Manley). The building ~~is a~~(used to be an) old ~~victory~~(Victorian) railway station.
+~~But build begin~~(Barter Books was begun) in the 1991,  by a couple of ~~executed by Mars and Mary~~(Stewart and Mary Manley).
+The building ~~is a~~(used to be an) old ~~victory~~(Victorian) railway station.
 
 Huge (rows of stack shelves now stand in the place where the tracks would have been)
 
 (but )the station ~~is a~~('s old) tearooms and waiting rooms are still here,
 
 
-it was (in) 2000 (that stewart)found ~~books~~(poster) in ~~the dust option~~ a box of dusty.
+it was (in) 2000 (that stewart)found ~~books~~(poster) in ~~the dust option~~ a box of dusty. (old books that had been bought at auction.)
 
+~~mary like to show much, a year later,they began to start to copy.~~ 
 
-
-mary like to show much, a year later,they began to start to copy. (old books that had been bought at auction. Mary liked it so much, she had it framed and put it up near the shop till. And it proved so popular with the customers that a year later they began to sell copies.)
+(Mary liked it so much, she had it framed and put it up near the shop till. And it proved so popular with the customers that a year later they began to sell copies.))
 
 since that time,(the poster has been) reproduced and ~~parity~~(parodied and trivialized and has ) become ~~acharming in~~(a truly iconic image of) 21st century.
 
 It is hard to say that exactly ~~what~~(why) such a ~~free~~(phrase from a bygone) ~~to~~ decade ~~from the renaissance now.~~ (would have so much appeal and resonance)
 
+(Its design’s considered simple and timeless and now commonly recognizable.)
 
 ~~It designs to a simply time and recommadtion as for. whoever had pass~~ (However, it is perhaps the words on the poster that people find most enchanting. Like a voice out of history,)
 
