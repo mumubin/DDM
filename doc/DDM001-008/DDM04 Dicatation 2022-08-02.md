@@ -10,17 +10,17 @@ They can bundle all your policies together.
 
 a lot of paperwork
 
-Actually, allstate agent can help do with  all paperwork for u 
+Actually, allstate agent can help do with (the switching and)~~all~~ paperwork for u 
 
 Well,(it) probably cost a lot
 
-allstate can save u (up to)30%  ~~more under~~(when you) bundle
+allstate can save u (up to)30%  more ~~under~~(when you) bundle
 
 well ~~the~~(his) dog is stupid
 
 poodles are  one of the world's smartest breed
 
-bundle (amd)save ~~in the~~(with an) allstate (agent), are u in ~ ~get~~(good) hands？
+bundle (and)save ~~in the~~(with an) allstate (agent), are u in ~ ~get~~(good) hands？
 
 I am your dog.
 
@@ -43,3 +43,6 @@ got all state, u ~~will~~(can) save me and be better protected for ~~may have~~(
 ## 总结
 这篇之前没有听answer太认真，但是成绩还可以，欣慰！003实在是太伤了
 
+holding down the ~~food~~（fort) ~~or~~(while) u (are out) catching the movie.
+And if you got your home insurance where you got your cut-rate car insurance it
+might not replace all this. Argh~
