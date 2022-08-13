@@ -45,7 +45,7 @@ Kramer: ~~I found u don't donates, you are a half bound, so much proud of u~~
         taking you over to Joe's fruit stand and stuffing cantaloupe down
         your throat! But so much for gratitude. Yeah, yeah, yeah)
 
-Dywane: all right,all right, all right I will give ~~u~~(him) the discount, and put ~~them~~(that thing) away. (But this squares) us  
+Dywane: all right,all right, all right I will give ~~u~~(him) the discount, and put ~~them~~(that thing) away. ( But this squares us   
 
 Elaine: could i just (have the name)
 
@@ -60,7 +60,7 @@ Elaine: Listen (to this), ~~it~~(that) is not good. ~~this is a~~(Listen to thes
 I('ve) got those, I am irritable.
 
 
-Jerry: (Who picked these out?)
+⭐️⭐️⭐⭐️⭐ Jerry: (Who picked these out?)
 
 George: I did.
 
@@ -69,8 +69,8 @@ around your neck so you can wear them while you're playing Canasta)
 
 George: well, Elaine was supposed to help me.
 
-Elaine: I got ~~a bite~~(bit) from a dog. (I had to) go to hospital. ~~I am blame that.~~ I am bleeding to death. 
-        I can't ~~saw this little maybe u have~~(solve every little problem you have!)
+Elaine: I got ~~a bite~~(bit) from a dog. (I had to) go to hospital. ~~I am blame that.~~ I am bleeding to death.
+⭐️⭐️⭐⭐️⭐I can't ~~saw this little maybe u have~~(solve every little problem you have!)
 
 Jerry: Hey
 
@@ -78,7 +78,7 @@ Elaine: I am sorry.
 
 Kramer: (Commando 8 has) arrive
 
-George: ~~I can't believe this~~(I’ll get the window.)
+⭐️⭐️⭐⭐️⭐George: ~~I can't believe this~~(I’ll get the window.)
 
 Kramer: (12000) thousands of BTUs cooling power  Installed
 
@@ -114,8 +114,8 @@ George: he sold me ladies' glasses
 
 Elaine: I began, I have a trouble ~~to~~ swallow(ing), I can't swallow
 
-Kramer: She('s) got rabies. (just like) my friend ~~suck madam~~(Bob Sacamano), She ~~deleries~~(delirious.),
-        ~~She in the~~(She's foaming at the mouth!
+Kramer: She('s) got rabies. (just like) my friend ~~suck madam~~(Bob Sacamano),
+        ⭐️⭐️⭐⭐️⭐ She ~~deleries~~(delirious.), ~~She in the~~(She's foaming at the mouth!
 
 Elaine: is ~~it a scaner~~(this gonna ) hurt?
 

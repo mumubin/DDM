@@ -7,9 +7,11 @@ help(ing) u bounce, jump , skip (and run ) with a little impact ~~chart~~(shock)
 
 
 
-  ~~I believe it should a lorry~~((Eye witness news reporter Lori Corbin strapped to)) checkout latest trend,
+  ~~I believe it should a lorry~~((Eye witness news reporter Lori Corbin strapped on a pair to)) checkout latest trend,
 
-⭐️⭐️⭐️U know u should ~~make sth~~(mix up your) work out. but ~~what make~~(with work leaving) u drowsy ,~~Trends~~(the treadmill's again on) autopilot, but not today.
+⭐️⭐️⭐️U know u should ~~make sth~~(mix up your) work out. but ~~what make~~(with work leaving) u drowsy ,
+
+~~Trends~~(the treadmill's again on) autopilot, but not today.
 
 Welcome to kangoo jump, a class ~~can~~(that  can't) help  ~~u~~(but put a) simile on ur face.
 
@@ -30,9 +32,10 @@ Introduced ~~to adies~~(in the 80s), kangoo jump (were) designed mainly for  ~~d
 
 but with huge ~~shop shock in itself~~(shock-absorbing shell, those who ). used to perform ~~for exports~~(impact sports) can now workout with little stress,
 
-There are no impact at (all to the) knee ~~orgerism uncle~~ joints and core ~~cilivation~~(stabilization) improved
+There are no impact at (all to the) knee ~~orgerism uncle~~ joints and core ~~cilivation~~(stabilization) improved (Core strength.)
 
-will develop ~~teaching spinning and noun impact sports~~(a hip injury teaching spinning, a non-impact sport,~~Get~~(yet) this training actually help his ~~knee~~(heal)
+~~will~~(De La Riva) develop ~~teaching spinning and noun impact sports~~(a hip injury teaching spinning, a non-impact sport,~~Get~~
+(yet) this training actually help him ~~knee~~(heal)
 
 (I can…do everything vertical )and there is ~~no more~~（none of) pain ~~after~~(form) that, ~~it has no impact~~
 
