@@ -32,3 +32,5 @@ over 290 million people ~~took~~(went to an) amusement ~~rides~~(park) in US, an
 
 
 ## 复习DDM10
+
+10还是不难的
