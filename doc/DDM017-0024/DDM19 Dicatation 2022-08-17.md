@@ -6,94 +6,38 @@
 
 ## DDM 19
 
-⭐️⭐️⭐️⭐️⭐ Father: ~~why~~(what) do u need all ~~the~~(that) ketchup (for)?
+open the past several decades, ~~the~~(an) ~~amy~~(alien) species of catfish ~~is being hold~~(has been honing) a quite remarkable hunting techie
 
-George: this is my ketchup, I bought this ketchup (just) so I ~~can~~(could) have as much as I want
+it involves the capture of a pigeons (through)~~who~~   ~~pecaris~~(the precarious act of) momentarily beaching ~~them~~(it)self on land
 
-Father: I talked ~~Fill Classic off~~(to Phil Casacof) today
+it's ~~a friend~~(in southwestern France) along the river (Tarn),(that) u can observe ~~it u need~~(this unique) population (of) predators
 
-Mother: Phil Casacof?
+each growing up to 1.5 meters long 
 
-⭐️⭐️⭐️⭐️⭐ Father: Yeah, U know. My friend the bra ~~zil assetment~~(saleman)? ~~I said we~~(they says they)'re looking (to maybe) put somebody on 
-           ~~else or~~ (So I) get (you) an interview next friday with (his) boss
- 
-George: next friday? what's time?
- 
-Father: 2 o'Clock
+this ~~end~~(ain't) your ~~kradma~~(grandma's) catfish
 
-George: this is my whole afternoon, ⭐️⭐️⭐️⭐️⭐  I ~~will be out with~~(was going to look for) sneakers
+they congregade ~~ur~~(near a) small island. (where) pigeons tend to (re)group some ~~are and are~~(R&R),
 
-Father:  U can look for sneakers ~~on that~~(the next) day
+when these ~~unexpecting~~(unsuspecting) bird ~~going water quench thirst~~(go in for a quick swig)
 
-Mother: he (doesn't) know anything about bras.
+they are terrifindly ~~grid~~(greeted) by the massive jaws of catfish
 
-George: I know a little. ~~size, what if~~(Besides, what do) u have to know?
+⭐️⭐️⭐️⭐️⭐(Death) ~~that~~'s certainly not ~~eminate,~~(imminent) but research observed ~~it 21~~ (the 28)% kill rate
+~~, and it's worth a birds down prey down~~ (in which there poor birds found themselves in the belly of)
+ the beast.
 
-⭐️⭐️⭐️⭐️⭐ Father: well. it wouldn't ~~hard~~(hurt) to (go in and )be able to discuss  ~~in a telegiently~~ (it intelligently), 
-          maybe u should take a look of a few bras. where's ur bras? give (him) a bra ~~to him for looking~~(to look at)
+⭐️⭐️⭐️⭐️⭐ (but it is believed the catfish) rely on their (whiskers to detect )water ~~vibrancy~~(vibrationsa) rather than ~~kills~~(visual cue)
 
-Mother: I ~~won't~~(am not) giv~~e~~(ing) him a bra.
+⭐️⭐️⭐️⭐️⭐ (So, if the pigeons care to live another day,)so they should keep calm and carry on 
 
-Father: why not?
+ok now ~~free can~~(panic and freak out!) 
 
-George: because I ~~know he didn't~~(don't) need ~~a~~(him) looking ~~of~~(at) my bra?
-
-⭐️⭐️⭐️⭐️⭐ Father: ~~why?~~(Fine,) so he('ll) go (in) to ~~an~~(the) interview ~~if~~(and) he ~~don't~~(wouldn't) know what (he's) talking about?
-
-George: ~~may~~(do I) have to?
-
-Father: ~~he~~(you) don't even know where they('re) made from?
-
-George: he made from ~~like spandish~~(Lycra Spandex.)
-
-Father: get out of here, ~~like spandish?~~(Lycra Spandex.)
-
-Mother: I think they are made from ~~like spandish?~~(Lycra Spandex.)
-
-Father:⭐️⭐️⭐️⭐️⭐ You wanna bet? How much you wanna bet? 
-
-Mother: I am not betting.
-
-Father: take a look.
-
-Mother: all right. I ~~am gonna~~('ll get a) bra
-
-Father: ~~Well, that's a~~(I don't know what the) big problem, get ~~your~~(a) bra
-
-George: so she ~~didn't need~~(doesn't want to ) get a bra
-
-⭐️⭐️⭐️⭐️⭐Father: ~~we're now~~(I am not) saying go to ~~a line braing,~~(the library and read the) ~~a~~ whole history 
-          but ~~know~~ (it wouldn't kill you) a little (bit) about it?
-
-George: oh , it wouldn't kill me
-
-⭐️⭐️⭐️⭐️⭐Father: ~~a long time to find her bra,~~(How long does it takes to find a bra?) what's going on in there? 
-        ~~yes,mr I gotta pear and abdon~~(You ask me to get a pair of underwear, I'm back in) 2 seconds.
-        u know (about) the cup ~~of it as u know~~(sizes and all)? ~~It~~(they) have different cups
-
-George: yeah, I know about the cup(s) 
-
-Father: ~~began~~(you got) the A,B,C the D , that's the biggest
-
-George: I know the D is the biggest. I ('ve based) my whole life ~~, I am~~(on) knowing the D is biggest.
-
-Mother: here, here is the bra
-
-Father: Let's see it.
-
-Mother: 100% ~~wet screw span desk,~~(Lycra Spandex.) I told u, Here, u will know everything/
-
-Father: ~~i~~(tha)t's surprising, ~~oh~~(all right) what else? ~~do~~ u get the cups ~~on~~(in) the front? ~~too lows~~(loops) in the back. all right
-()
-
-George: I got it , cups in the front, ~~mode~~(loops) in the back  
-
-Father: ~~be careful ketchup~~(You got ketchup on it!)
+once again (thanks for tuning in and giddy up!)
 
 ## 总结
 
-练了20篇,发现seinfeld 才是最难的
-
+这篇要难死了
+giddy up! 高兴起来吧
 
 
 ## 复习DDM11
