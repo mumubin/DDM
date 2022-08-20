@@ -4,7 +4,7 @@
 
 只填blank都是最难得地方,挫败感很强,我今天起还是默写每一句
 
-## DDM 20
+## DDM 21
 
 Jerry: Sniffing
 
@@ -202,5 +202,5 @@ Newman: I am sure,(if)) we put our three ~~hands~~(heads) together , we should c
 这篇5分钟视频,花了我两个小时听完,不过这会比较满意,大概都听懂了,除了五星部分
 总是answer看的走神
 
-## 复习DDM10
-没来的及 周末补
+## 复习DDM13
+太难了 kramer crazy的时候

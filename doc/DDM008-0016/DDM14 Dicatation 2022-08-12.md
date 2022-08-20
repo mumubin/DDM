@@ -6,7 +6,7 @@
 
 ## DDM 14
 April 22nd, 1994 , In New York former president ~~Niclson~~(Richard Nixon) die~~d~~(s) at age 81 just ~~stays such a~~(days after) suffering a stroke
-Others may hate u, both (those) who hate u dont't win ~~, I should be firm~~(unless you hate them) and then u ~~destruct~~(destro y) yourself, 
+⭐️⭐️⭐⭐️⭐Others may hate u, both (those) who hate u dont't win ~~, I should be firm~~(unless you hate them) and then u ~~destruct~~(destro y) yourself, 
 Nixon pursued ~~called what~~(Cold War detente) and ~~well done~~(wound down) ~~in~~ American Military (role) in vietnam war
 but he became the only president to resign ~~in~~(when) the water gate ~~scamble~~(scandal forced him ) from ~~the~~ office
 
@@ -29,8 +29,8 @@ today of history. April  22nd
 
 ## 总结
 
-4分钟的音频太长了,今天完不成听answer了,周末再把进度赶上来吧
+这篇好难
 
 
-## 复习DDM05
+## 复习DDM06
 复习下来george father的发音没那么难受了

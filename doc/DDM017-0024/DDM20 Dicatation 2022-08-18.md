@@ -94,5 +94,5 @@ Father: ~~be careful ketchup~~(You got ketchup on it!)
 
 依然很难
 
-## 复习DDM10
-没来的及 周末补
+## 复习DDM12
+第一条 和第八条依然没听懂

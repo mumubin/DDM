@@ -34,7 +34,7 @@ Dywane: what do u doing?
 
 Kramer: six months ago, u eat ~~a~~(four of those) for breakfast (and chasing it with a Ring Ding.)
         ~~in trains when it's a rain day.~~
-        ~~I told fingers in a~~(And two Butter Fingers on the train.) train, sound familiar?
+        ~~I told fingers in a~~(And two Butter Fingers on the) train, sound familiar?
 
 Dywane: put it away
 
