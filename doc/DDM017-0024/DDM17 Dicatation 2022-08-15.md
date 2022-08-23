@@ -29,7 +29,7 @@ Elaine: yeah,
 Jerry: yeah big surprise
 
 ⭐️⭐️⭐⭐️⭐ Elaine: so I am sitting in a reception desk, ~~this guy looks~~(I was looking) pretty hot, ~~hat's really my sting puns~~(I
-was wearing my slingback pumps.)
+        was wearing my slingback pumps.)
 
 George: what are those?
 
@@ -42,7 +42,7 @@ Elaine: I said so what (do) u think? and he said ~~getbritin~~(Gabardine?") and 
 
 George: hahaha, just ~~fountin~~(felt your) material
 
-Elaine: (Yeah. Jake Jarmel)
+Elaine: (Yeah. 
 
 George: Woo, sounds like a cool guy
 
@@ -98,10 +98,10 @@ Elaine: No come on Jerry
 
 George: he ~~is~~(was) definitely sniffing
 
-Jerry: I mean what (if ) ~~have I discot~~(that guy's got all)  my money. 
+⭐️⭐️⭐⭐️⭐ Jerry: I mean what (if ) ~~have I discot~~(this guy's got all)  my money. 
 
-~~let some customers' money with them.~~ Plus with Kramer's money with him
-this guy ~~can run~~(could write) check ~~without~~(to himself right out of) my account
+~~let some customers' money with them.~~ Plus I got some of Kramer's money with him
+this guy ~~can run~~(could write) checks ~~without~~(to himself right out of) my account
 
 Elaine: Listen, I have ~~no discount~~(known this guy since college) . He didn't do drug(s).
 
