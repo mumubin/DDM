@@ -14,7 +14,7 @@ George: Oh sure . (why not?)  , Hey. that's the guy
 
 Blind: what's guy?
 
-George: the guy (that) stole my glasses. ~~let's catch him.~~(This time I got him ) ~~hurry ~~(could u pick it) up a little
+George: the guy (that) stole my glasses. ~~let's catch him.~~(This time I got him ) ~~hurry~~(could u pick it) up a little
 
 Blind: ~~hold on, where~~(what the hell) are we going?
 
@@ -32,14 +32,14 @@ Dwaynie: yeah, we can do that
 
 Dwaynie: Why should I give u a discount?
 
-George: Listen u are lucky.~~Or~~ I~~'ll~~ ('m not) ask(ing) for a whole refund. (You) give me ladies' frames
+George: Listen u are lucky.~~Or~~ I ~~'ll~~ ('m not) ask(ing) for a whole refund. (You) give me ladies' frames
 
-Blind: what('s that) about lades' frames?
+Blind: what('s that) about ladis' frames?
 
 ⭐️⭐️⭐⭐️⭐️Dog owner: ~~heu, should U lay down the~~(I'm trying to[trina] track down that lady that was in here the other day;
 the one who was messing ) with my dog
 
-⭐️⭐️⭐⭐️⭐️ George: she is tracking to ~~let~~(track) u down
+⭐️⭐️⭐⭐️⭐️ George: she is trying to ~~let~~(track) u down
 
 Dog owner: I would ~~like~~(love) to talk with her
 

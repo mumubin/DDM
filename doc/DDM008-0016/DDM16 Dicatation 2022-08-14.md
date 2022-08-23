@@ -6,9 +6,11 @@
 
 ## DDM 16
 
-The British department respond(ed) unfavor(ably when they heard) ~~the~~(that) teacher(s ) in (a) London secondary school were banned for red pens for grading.
+The British ~~department~~(Parliament) respond(ed) unfavor(ably when they heard) ~~the~~(that) teacher(s ) in (a) London secondary school
 
-The school ~~introduced~~(instituted) the policy because they  deternate that red ink is upsetting to ~~some~~(the) students
+were banned for (using) red pens for grading.
+
+The school ~~introduced~~(instituted) the policy because they  determined that red ink is upsetting to ~~some~~(the) students
 
 ~~Conserved~~(Conservative Parliament) ... member XXXX was informed about the practice by one of ~~those~~(the school's) teachers and call(ed) the political correctness gone wild
 
